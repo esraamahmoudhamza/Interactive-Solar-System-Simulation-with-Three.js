@@ -27,3 +27,12 @@ https://www.solarsystemscope.com/textures/
 
 ## 👩‍💻 Author
 **Esraa Codes**
+
+## 🔗 Follow Me
+
+Stay connected for more cool projects & tutorials 🚀
+
+* 📸 [Instagram](https://www.instagram.com/esraa_codes)
+* 🎵 [TikTok](https://www.tiktok.com/@esraa.codes)
+* ▶️ [YouTube](https://www.youtube.com/@EsraaCodes)
+* 🌐 [GitHub](https://github.com/esraamahmoudhamza)
